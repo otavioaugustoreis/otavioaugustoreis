@@ -1,4 +1,4 @@
-### Olá! Eu sou Otavio Augusto 🖐🏻🐱‍👤
+### Olá! Eu sou Otavio Augusto 🖐🏻
 
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/otavio-augusto-a0a71b225/)
 
